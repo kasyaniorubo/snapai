@@ -2,4 +2,4 @@
 free ai video generator
 Free Ai Video Generator 
 
-[http://aivideogenerator.org](https://aivideogeneration.org)
+[http://aivideogeneration.org](https://aivideogeneration.org)
